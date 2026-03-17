@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-<!--
+<!--Eu sou o givas, rei do degradê, ouço rap totalmente underground e sujo, odeio todos os políticos. Se quiser cortar comigo só chamar, atendo a domicílio e tá vintão o corte.
 **givasdocorte/givasdocorte** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
