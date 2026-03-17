@@ -2,7 +2,7 @@
 ### Salve, seja bem-vindo! ✂️💈
 
 **Sobre o meu corre:**
-Tenho 16 anos e odeio o sistema corrupto que deixa o pobre cada vez mais pobre, e o rico cada vez mais rico. Sou o **Rei do Degradê** e levo a régua máxima direto para a sua casa. Sem fila, sem enrolação e sem encheção de linguiça — apenas você no conforto do seu lar e um corte de respeito. Se você quer estilo e praticidade, você chamou o cara certo.
+Tenho 16 anos e só ouço rap totalmente underground e sujo. Sou o **Rei do Degradê** e levo a régua máxima direto para a sua casa. Sem fila, sem enrolação e sem encheção de linguiça — apenas você no conforto do seu lar e um corte de respeito. Se você quer estilo e praticidade, você chamou o cara certo.
 
 ---
 
