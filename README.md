@@ -1,9 +1,4 @@
-# Givas do Corte
-### Saldações, seja bem-vindo! ✂️💈
-
-**Sobre o meu corre:**
-Tenho 16 anos e só ouço música erudita. Sou o rei do corte social e levo a satisfação máxima direto para a sua casa. Sem fila, sem enrolação e sem encheção de linguiça — apenas você no conforto do seu lar e um corte de respeito. Se você quer estilo e praticidade, você chamou o piá certo.
-
+Saudações. É um prazer atendê-lo.Sobre minha incumbência: aos 16 anos, dedico-me ao exercício da barbearia sob a influência da música erudita, o que reflete o rigor e a precisão do meu trabalho. Especialista em cortes sociais, minha premissa é a excelência no atendimento personalizado, entregando conveniência e sofisticação diretamente em seu domicílio.Priorizo a eficiência e a pontualidade, eliminando esperas desnecessárias para garantir uma experiência exclusiva no conforto de seu lar. Se busca por distinção estética e praticidade, dispõe agora do profissional adequado para elevar sua imagem.
 ---
 
 ### 📊 Barber Status
