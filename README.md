@@ -1,4 +1,9 @@
-Saudações. É um prazer atendê-lo. 🤝Sobre minha incumbiência:Aos 16 anos, dedico-me ao exercício da barbearia sob a influência da música erudita, o que reflete o rigor e a precisão do meu labor. 🎻Diferenciais e Especialidade:Expertise: Especialista em cortes sociais. ✂️Premissa: Excelência no atendimento personalizado. ✨Conveniência: Sofisticação entregue diretamente em seu domicílio. 🏠Compromisso com o Cliente:Priorizo a eficiência e a pontualidade, eliminando esperas desnecessárias para garantir uma experiência exclusiva no conforto de seu lar. 🕰️Conclusão:Se busca por distinção estética e praticidade, dispõe agora do profissional adequado para elevar sua imagem. 🎩
+Saudações. É um prazer atendê-lo.
+🤝Sobre minha incumbiência:Aos 16 anos, dedico-me ao exercício da barbearia sob a influência da música erudita, o que reflete o rigor e a precisão do meu labor. 🎻Diferenciais e Especialidade:Expertise: Especialista em cortes sociais.
+✂️Premissa: Excelência no atendimento personalizado.
+✨Conveniência: Sofisticação entregue diretamente em seu domicílio.
+🏠Compromisso com o Cliente:Priorizo a eficiência e a pontualidade, eliminando esperas desnecessárias para garantir uma experiência exclusiva no conforto de seu lar. 
+🕰️Conclusão:Se busca por distinção estética e praticidade, dispõe agora do profissional adequado para elevar sua imagem. 🎩
 ---
 
 ### 📊 Barber Status
