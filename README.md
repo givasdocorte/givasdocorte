@@ -1,5 +1,5 @@
 # Givas do Corte
-### Salve, seja bem-vindo! ✂️💈
+### Saldações, seja bem-vindo! ✂️💈
 
 **Sobre o meu corre:**
 Tenho 16 anos e só ouço música erudita. Sou o rei do corte social e levo a satisfação máxima direto para a sua casa. Sem fila, sem enrolação e sem encheção de linguiça — apenas você no conforto do seu lar e um corte de respeito. Se você quer estilo e praticidade, você chamou o piá certo.
